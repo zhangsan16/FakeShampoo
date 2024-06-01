@@ -1,3 +1,4 @@
+[English](README_EN.md) | [简体中文](README.md) | [日本語](README_JA.md)
 # 揭露洗发水骗局，改变人类护发历史
 `分享我个人逆转白发，停止脱发，减轻瘙痒的心得`
     
