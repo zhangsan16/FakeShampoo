@@ -3,28 +3,28 @@
 `Share my personal experience of reversing gray hair, stopping hair loss, and relieving itching`
     
 ## Limerick：
-~~Everyday~~ **Stop using shampoo and apply saliva to your scalp. It will no longer itch in four weeks. No more oiliness in five weeks. No hair loss in six weeks. It will turn gray to black in one year. Who should blame so many of you for your baldness?**
+~~Everyday~~ **Stop using shampoo and apply saliva to your scalp. The scalp will no longer itch in four weeks. The hair will no  more oiliness in five weeks. The hair will no longer loss in six weeks and will turn gray to black in one year. Who should blame so many of you for your baldness?**
     
 ## Fable：
 `One day, the cat Meow and the dog Max were sunbathing and licking their fur at the entrance of the village.`
 - **Meow：**
 Brother, I think of a way to make money
 - **Max：**
-If you have any bad ideas, just pull them out.
+If you have any bad ideas, just pull them out from your asshole.
 - **Meow：**
-我想生产一种洗毛产品，不能叫洗毛水，人家会告我；就叫喵喵香波，看名字就觉得人畜无害，起名很关键
+I want to produce a kind of hair washing product. It shouldn't be called Shampoo, or people would sue me. I’ll call it Meow Meow Water. What a kind name
 - **Max：**
-毛闲的没事舔两下不就行了么，用那玩意干啥
+Wouldn't it be enough to just use tongue and saliva?
 - **Meow：**
-赚钱呀，加上柔顺剂，又松又软，清洁效果还好，省的这么累，肯定销量很好
+It makes money. With softener and highly effective cleaner, the sales must be very good.
 - **Max：**
-你这门槛也不高啊，别人也做你也赚不到钱啊
+It seems simple, you can't make too much money if others do it too
 - **Meow：**
-那就找村里屎壳郎专家开发半个月都能促进出油，出毛屑，促进瘙痒的成分，再配合只能生效三天的止屑、止痒、止油的成分，让它们产生依赖
+Then find the dung beetle expert in the village to develop ingredients that can promote the production of oil, dandruff, and itching for half a month, and then combine them with anti-dandruff, anti-itch, and anti-oil ingredients that can only take effect for three days, so that they can create dependence
 - **Max：**
-你这不是骗人嘛，加这些玩意不秃毛吗
+Isn't this a lie? Won't adding these things cause hair loss??
 - **Meow：**
-什么骗不骗人，你就说能不能止屑、止痒、止油吧
+Why is it a lie? Just tell me if it can relieve dandruff, itching, and oiliness.
 - **Meow：**
 等做大了标准都是我们定，还不是我们说了算，你看隔壁村鹿三娘那产业，自己肯定不敢瞎搞，只看到给她供货的咱村牛二壮老往它婆娘们奶里加佐料，几个村里的都来进货那么多年了，标准里不还是压根不检测
 - **Max：**
