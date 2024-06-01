@@ -1,39 +1,39 @@
-[English](README_EN.md) | [简体中文](README.md) | [日本語](README_JA.md)
-# 揭露洗发水骗局，改变人类护发历史
-`分享我个人逆转白发，停止脱发，减轻瘙痒的心得`
+[English](README_EN.md) | [Simplified Chinese](README.md) | [Japanese](README_JA.md)
+# Expose the shampoo scam and change the history of human hair care
+`Share my personal experience of reversing gray hair, stopping hair loss, and relieving itching`
     
-## 打油诗：
-~~我每天~~ **停用洗发水，唾液涂头皮，四周不再痒，五周不再油，六周不脱发，一年白发黑；敢问你们那么多人秃顶该赖谁？**
+## Limerick：
+~~Everyday~~ **Stop using shampoo and apply saliva to your scalp. It will no longer itch in four weeks. No more oiliness in five weeks. No hair loss in six weeks. It will turn gray to black in one year. Who should blame so many of you for your baldness?**
     
-## 寓言故事：
-`一天·猫大明白·和·狗二愣子·在村口晒太阳，舔毛`
-- **猫大明白：**
-狗哥，我想到个赚钱的法子
-- **狗二愣子：**
-猫老弟，有啥馊主意赶紧拉出来
-- **猫大明白：**
+## Fable：
+`One day, the cat Meow and the dog Max were sunbathing and licking their fur at the entrance of the village.`
+- **Meow：**
+Brother, I think of a way to make money
+- **Max：**
+If you have any bad ideas, just pull them out.
+- **Meow：**
 我想生产一种洗毛产品，不能叫洗毛水，人家会告我；就叫喵喵香波，看名字就觉得人畜无害，起名很关键
-- **狗二愣子：**
+- **Max：**
 毛闲的没事舔两下不就行了么，用那玩意干啥
-- **猫大明白：**
+- **Meow：**
 赚钱呀，加上柔顺剂，又松又软，清洁效果还好，省的这么累，肯定销量很好
-- **狗二愣子：**
+- **Max：**
 你这门槛也不高啊，别人也做你也赚不到钱啊
-- **猫大明白：**
+- **Meow：**
 那就找村里屎壳郎专家开发半个月都能促进出油，出毛屑，促进瘙痒的成分，再配合只能生效三天的止屑、止痒、止油的成分，让它们产生依赖
-- **狗二愣子：**
+- **Max：**
 你这不是骗人嘛，加这些玩意不秃毛吗
-- **猫大明白：**
+- **Meow：**
 什么骗不骗人，你就说能不能止屑、止痒、止油吧
-- **猫大明白：**
+- **Meow：**
 等做大了标准都是我们定，还不是我们说了算，你看隔壁村鹿三娘那产业，自己肯定不敢瞎搞，只看到给她供货的咱村牛二壮老往它婆娘们奶里加佐料，几个村里的都来进货那么多年了，标准里不还是压根不检测
-- **狗二愣子：**
+- **Max：**
 这是都商量好了吗
-- **猫大明白：**
+- **Meow：**
 别造谣啊，可别这么说。只要用上五六年不立马秃毛就怀疑不到我身上，真秃毛了到时候安排点蝉大喇叭和瓢大夫，飞机打多了的就说肾虚，不打飞机的就说内分泌失调、激素分泌过多，现在有几个不熬夜，压力不大的，蒙也能蒙对。
-- **猫大明白：**
+- **Meow：**
 人家瓢大夫不仅能开点药调理调理，也能种毛，互惠互利，多好。还有，手术不是说越无菌越安全吗，我让蝉大喇叭宣传下舔毛对身体不好，要让它们相信皮肤越洗越健康
-- **狗二愣子：**
+- **Max：**
 猫老弟，还是你花活多，以后我就跟你混了
 
 ## 背景：
